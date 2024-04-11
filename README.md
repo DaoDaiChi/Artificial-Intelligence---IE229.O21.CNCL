@@ -1,1 +1,1 @@
-# Artificial-Intelligence---IE229.O21.CNCL
+# Artificial Intelligence IE229.CNCL
